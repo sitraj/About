@@ -1,4 +1,4 @@
-# Getting to know Shounak Itraj
+# Shounak Itraj: A Brief Introduction
 
 Hello, I'm Shounak Itraj, a passionate information security enthusiast with an insatiable curiosity for all things related to keeping our digital world safe. Beyond the realms of cybersecurity, I find solace in the enchanting world of music, where I immerse myself in playing traditional Indian instruments. And in the quiet moments between, you'll often find me lost in the pages of a good book, for I am an ardent book lover.
 
