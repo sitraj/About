@@ -9,4 +9,4 @@ Here are some essential links related to me and my online presence:
 * [LinkedIn](https://www.linkedin.com/in/shounak-itraj/)
 * [Twitter](https://twitter.com/sritraj)
 
-Feel free to connect, explore, and reach out through these channels."
+Feel free to connect, explore, and reach out through these channels.
